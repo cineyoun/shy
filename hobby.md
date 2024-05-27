@@ -1,2 +1,3 @@
 my hobby is...
-listen to music...🔫
+listen to music...🔫  
+🤩 별 보러 다니기
